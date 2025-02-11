@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🔭 I’m currently working on a video game project in team of 8 for a course in my engineering school !
+- 🌱 I’m currently learning Java.......
+- 👯 I’m looking to collaborate on nothing currently
+- 💬 Ask me about how I cook my rice with curry coco chicken
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am french 
